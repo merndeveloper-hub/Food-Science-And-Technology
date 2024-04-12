@@ -3,6 +3,8 @@ The Department was established in 1994 to cater the needs of the fast growing fo
 
 LINK: https://sensational-piroshki-d6ba70.netlify.app/
 
+[Screencast from 12-04-2024 21:18:33.webm](https://github.com/merndeveloper-hub/Food-Science-And-Technology/assets/67875982/058eb4be-dcd9-45e4-9231-f087b714485f)
+
 
 
 
